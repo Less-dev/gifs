@@ -234,6 +234,61 @@
   <img src="https://github.com/Less-dev/gifs/blob/master/DIVIDERS/text_red_divider_29.png">
 </div>
 
+<p align="center">
+    <img src="https://user-images.githubusercontent.com/74038190/212284100-561aa473-3905-4a80-b561-0d28506553ee.gif" width="1000">
+</p>
 
+<br>
+
+## announces
+
+<div align="center">
+    <img src="https://cyber.dabamos.de/88x31/007button.gif">
+    <img src="https://cyber.dabamos.de/88x31/104.gif">
+    <img src="https://cyber.dabamos.de/88x31/38caution.gif">
+    <img src="https://cyber.dabamos.de/88x31/benzwarez.gif">
+    <img src="https://cyber.dabamos.de/88x31/banner2.gif">
+    <img src="https://cyber.dabamos.de/88x31/cyberrealmrefer.gif">
+    <img src="https://cyber.dabamos.de/88x31/clickhere_blue.gif">
+    <img src="https://cyber.dabamos.de/88x31/clickhere_red.gif">
+    <img src="https://cyber.dabamos.de/88x31/click_here.gif">
+    <img src="https://cyber.dabamos.de/88x31/corruptedunicorn.gif">
+    <img src="https://cyber.dabamos.de/88x31/csphl_link.gif">
+    <img src="https://cyber.dabamos.de/88x31/cd_rom.gif">
+    <img src="https://anlucas.neocities.org/lol.gif">
+    <img src="https://cyber.dabamos.de/88x31/brbutton.gif">
+    <img src="https://cyber.dabamos.de/88x31/asswolf_txt.gif">
+    <img src="https://cyber.dabamos.de/88x31/dataduck.gif">
+    <img src="https://cyber.dabamos.de/88x31/cogs.gif">
+    <img src="https://cyber.dabamos.de/88x31/button-dubai-omeira.gif">
+    <img src="https://cyber.dabamos.de/88x31/amazing_free_stuff.gif">
+    <img src="https://cyber.dabamos.de/88x31/adultchat.gif">
+    <img src="https://cyber.dabamos.de/88x31/alertra.gif">
+    <img src="https://cyber.dabamos.de/88x31/aniback1g.gif">
+    <img src="https://cyber.dabamos.de/88x31/dallas_but1.gif">
+    <img src="https://cyber.dabamos.de/88x31/culture_club.gif">
+    <img src="https://cyber.dabamos.de/88x31/cyberoom.gif">
+    <img src="https://cyber.dabamos.de/88x31/d666.gif">
+    <img src="https://cyber.dabamos.de/88x31/csbanner.gif">
+    <img src="https://cyber.dabamos.de/88x31/cooltxt.gif">
+    <img src="https://cyber.dabamos.de/88x31/darkzide2.gif">
+    <img src="https://cyber.dabamos.de/88x31/chaos.gif">
+    <img src="https://cyber.dabamos.de/88x31/buscamanga.gif">
+    <img src="https://cyber.dabamos.de/88x31/bestviewed16bit.gif">
+    <img src="https://cyber.dabamos.de/88x31/bestcanada.gif">
+    <img src="https://anlucas.neocities.org/clip8.gif">
+    <img src="https://cyber.dabamos.de/88x31/bestceleb.gif">
+    <img src="https://cyber.dabamos.de/88x31/bestviewedwith.gif">
+    <img src="https://anlucas.neocities.org/vicnow.gif">
+    <img src="https://cyber.dabamos.de/88x31/best_show_time_for_your_life.gif">
+    <img src="https://cyber.dabamos.de/88x31/bloodcovered.gif">
+    <img src="https://cyber.dabamos.de/88x31/brunebase.gif">
+    <img src="https://cyber.dabamos.de/88x31/cont-now.gif">
+    <img src="https://cyber.dabamos.de/88x31/byt_banner.gif">
+    <img src="https://cyber.dabamos.de/88x31/davbutton.gif">
+    <img src="https://anlucas.neocities.org/ada.gif">
+    <img src="https://anlucas.neocities.org/classicgaming.gif">
+    <img src="https://anlucas.neocities.org/elturco.gif">
+</div>
 
 
